@@ -6,4 +6,4 @@ erhellen sie den Leser, durch das Verhüllen vom Licht.
 Texts are statements are words are nothing,
 but a try to describe ideas,
 using terms that might never remain the same,
-they will brighten the reader, by the clouding of light
+they will brighten the reader, by the clouding of light.
