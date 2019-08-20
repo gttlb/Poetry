@@ -1,4 +1,5 @@
-transgress your codified lifestyle - but keep all alliterations
+# Transgress your codified lifestyle
+## But keep all alliterations
 
 There are powerful problems we face due to too many various languages. 
 There are what we call our mother tongues, with multitudes of accents and dialects. 
